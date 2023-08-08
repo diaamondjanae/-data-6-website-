@@ -1,2 +1,2 @@
 # -data-6-website-
-Heyy 
+Heyy My name is Diaamond & this is my website <3
